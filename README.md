@@ -3,11 +3,9 @@ Empresa dedicada a la alimentación conciente, cuento con productos de gran cali
 Integrantes de grupo:
 
 - Juan Martin Vicente: Ingeniero Industrial, 42 años, estudiando en DH porque siempre le gusto el tema y busca nuevas alternativas laborales.
-
-- Gonzalo Sabella:
+- Gonzalo Sabella: Lic. en Publicidad, 43 años, estudiando en DH porque quiero emprender un proyecto en este mundo digital. 
 - Agustin Casas:
 - Stefano  Bras:
-
 
 LISTADO DE SITIOS Y PORQUE FUERON ELEGIDOS
 
